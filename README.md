@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate a los estudiantes y personas que no cuentan con internet para navegar siempre.
 - 📫 How to reach me +51 901 731 785 o al Gmail. milderrosas5@gmail.com
 - 😄 Pronouns: ERREJOTA o Sain
-- ⚡ Fun fact: unete a mi equipo y aremos un gran cambio.💪👍
+- ⚡ Fun fact: unete a mi equipo y formemos un gran cambio.💪👍
 
 <!---
 Mildersain/Mildersain is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
